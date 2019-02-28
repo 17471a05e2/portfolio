@@ -1,2 +1,2 @@
 # portfolio
-#by Nandigama kowlini
+#by Nandigama Kowlini
